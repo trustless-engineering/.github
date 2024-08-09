@@ -1,3 +1,3 @@
-# Don't trust the robots.
+# Financial agency for the decentralized generation.
 
 
